@@ -1,1 +1,1 @@
-# Privacy.txt
+# Lol.GG12345
